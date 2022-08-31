@@ -57,11 +57,11 @@ For starters click on this button
 
 ## Our Telegram Channel and Group
 
-* [Warbotz](https://telegram.dog/warbotz)
-* [WarBotzChat](https://telegram.dog/camila_support)
+* [GTCINEMATICUNIVERSE](https://telegram.dog/GTCinematicUniverse)
+* [LatestMoviezOnNet](https://telegram.dog/LatestMoviezOnNet)
 
 ## Credits, and Thanks to 
-*   [Abhishek](https://telegram.dog/itsmelegend)
+*   [MadMax](https://telegram.dog/MadMax_8)
 
 
 
